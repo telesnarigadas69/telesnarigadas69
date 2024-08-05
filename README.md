@@ -4,5 +4,5 @@
 - 💞️ I’m looking to collaborate on dwarf trafficking
 - 📫 How to reach me putting your pussy to the game
 - 😄 Pronouns: he/delas
-- ⚡ Fun fact: I have a 20 centimeter nose
+- ⚡ Fun fact: I have a 20 centimeter dick
 
